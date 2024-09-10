@@ -1,1 +1,1 @@
-This is one of our farms, where you reap what you sow.
+Some of our farms, where you reap what you sow.
